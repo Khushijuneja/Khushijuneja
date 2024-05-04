@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Khushijuneja
 - 👀 I’m interested in Full Stack Developer
-- 🌱 I’m currently learning Technolody-Php and Other Backened Dev...Technologies
+- 🌱 I’m currently learning Technolody-Php and Other Backened Technologies
 - 💞️ I’m looking to collaborate on [Fronted Developer]Wordpress
 - 📫 How to reach me Khushijuneja999@gmail.com  Mob-9307996748
 - 😄 Pronouns:  ...... 
