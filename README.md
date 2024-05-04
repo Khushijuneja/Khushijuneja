@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on [Fronted Developer]Wordpress
 - 📫 How to reach me Khushijuneja999@gmail.com   Mob-9307996748
 - 😄 Pronouns:  ...... 
-- ⚡ Fun fact:Listening to Music  
+- ⚡ Fun fact: Listening to Music  
 
 <!---
 Khushijuneja/Khushijuneja is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
